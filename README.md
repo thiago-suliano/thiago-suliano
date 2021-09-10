@@ -1,6 +1,6 @@
 ### Olá! Sou o Thiago Suliano, bem vinda(o) 🎼 👋
 
-- 🔭 Trabalho com música 🎶
+- 🔭 Músico 🎶
 - 🎹 Produtor musical 🎧
 - 📝compositor
 - 🎻Professor
